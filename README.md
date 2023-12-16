@@ -2,6 +2,8 @@
 
 Hi, I'm Keven. In December 2023, I decided to embark on a new career path. In January 2024, I'll be starting a track towards an AAS in Cybersecurity and the current plan is to follow that up with a BS in Computer Science.
 
+I'm also an aspiring pilot. 
+
 ---
 >I find a duck’s opinion of me is very much influenced by whether or not I have bread.
 — Mitch Hedberg
