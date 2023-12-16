@@ -4,7 +4,7 @@ Hi, I'm Keven. In December 2023, I decided to embark on a new career path. In Ja
 
 ---
 >I find a duck’s opinion of me is very much influenced by whether or not I have bread.
-- Mitch Hedberg
+— Mitch Hedberg
 
 <!--
 **culpk/culpk** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
